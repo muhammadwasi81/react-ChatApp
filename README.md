@@ -7,4 +7,4 @@
 
 ### User interface 
 
-<a href="https://ibb.co/Zg203qh"><img src="https://i.ibb.co/bvbkxcr/2021-02-26-1.png" alt="2021-02-26-1" border="0"></a>
+<img src="https://i.ibb.co/pL0F30b/2021-02-26-1.png" alt="2021-02-26-1" border="0">
